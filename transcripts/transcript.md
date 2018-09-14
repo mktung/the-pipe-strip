@@ -4,7 +4,7 @@ word "epistemological").
 
 This transcript heavily abuses commas, and mainly uses them to indicate pauses
 in Barrymore's speech pattern. To simplify the formatting, the use of
-semicolons, em dashes, and parantheses is limitted, with colons being used
+semicolons, em dashes, and parantheses is limited, with colons being used
 sparingly.
 
 ================================================================================
@@ -67,6 +67,29 @@ And from afar, and from someplace near, but not clear. Near, but not clear. The
 man calls out. Jon calls out. He is shocked. "Garfield!" he shouts. Garfield,
 the cat's name.
 
-But, let's take a step back.
+But, let's take a step back. Let us examine this from all sides, all
+perspectives. And when I first came across this comic strip, I was at my
+father's house. The newspaper had arrived and I picked it up for him, and brought
+it inside. I organized his sections for him and, yes, the comic strip section
+fell out from somewehre in the middle. Landed on the kitchen floor. I picked up
+the paper pages and saw up somewhere near the top of this strip. Just like Jon,
+I too was wearing an aquamarine shirt. So I thought, "Ah, interesting. I'll have
+to see to this later."
+
+I snipped out the little comic and held onto it. Five days later I reexamined,
+and it gripped me. I needed to find out more about this. The information I had
+was minimal, but enough. An orange cat named Garfield. Okay, that seemed to be
+the linchpin of this whole operation. Yes, another clue. A signature in the
+bottom right corner. A man's name: Jim Davis. Yes, I am on to it for sure.
+
+So, one: Garfield, orange cat. And two: Jim Davis, the creator of this cat. And
+that curiously plain man. I did not know at the time that this name was Jon. The
+strip, you see, had no mention of this man's name, and I'd never seen it before.
+But I had these clues. Jim Davis. Garfield. And then I saw more. I spotted the
+tiny copyright mark in the upper left corner. Copyright 1970 to, what is this,
+copyright belongs to a PAWS, INC.
+
+I used the local library and mail services to track down the information I was
+looking for.
 
 [WIP]
