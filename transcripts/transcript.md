@@ -3,9 +3,8 @@ Many imperfections in Barrymore's speech are ignored (e.g. stuttering over the
 word "epistemological").
 
 This transcript heavily abuses commas, and mainly uses them to indicate pauses
-in Barrymore's speech pattern. To simplify the formatting, the use of
-semicolons, em dashes, and parantheses is limited, with colons being used
-sparingly.
+in Barrymore's speech pattern. To simplify the formatting, the use of colons,
+semicolons, em dashes, and parantheses is limited.
 
 ================================================================================
 
@@ -27,14 +26,14 @@ it seemed, changed me. Changed my being. Changed who I am. Made me who I am.
 Enlightened me.
 
 [1:45](https://youtu.be/NAh9oLs67Cw?t=1m45s)
-The strip: Garfield. The comic strip was new, no more than maybe a month and a
+The strip, Garfield. The comic strip was new, no more than maybe a month and a
 half since inception, since coming into existence. And there it was before me in
 print, I saw it. A comic strip. What was it called? Garfield.
 
 [2:03](https://youtu.be/NAh9oLs67Cw?t=2m03s)
 The story here is of a man, a plain man. He is Jon, but he is more than that. I
 will get to this later, but first let us just say that he is Jon, a plain man.
-And then there is a cat: Garfield. This is the nature of the world here. When I
+And then there is a cat, Garfield. This is the nature of the world here. When I
 see the world, the, the, politics, the future, the, the satellites in space, and
 the people who put them there. You can look at everything as a man and a cat.
 Two beings, in harmony, and at war.
@@ -55,7 +54,7 @@ is it? It is something he needs, but it is not there.
 
 [2:32](https://youtu.be/NAh9oLs67Cw?t=2m32s)
 Then he looks up, slightly cockeyed, and he thinks. His newspaper in his lap
-now, and he thinks this: "Now where could my pipe be?" This, I always come to
+now, and he thinks this, "Now where could my pipe be?" This, I always come to
 this, because I was a young man. I'm older now, and I still don't have the
 secrets, the answers, so this question still rings true. Jon looks up and he
 thinks, "Now where could my pipe be?" And then it happens, you see it, you see,
@@ -69,20 +68,20 @@ the cat's name.
 
 But, let's take a step back. Let us examine this from all sides, all
 perspectives. And when I first came across this comic strip, I was at my
-father's house. The newspaper had arrived and I picked it up for him, and brought
-it inside. I organized his sections for him and, yes, the comic strip section
-fell out from somewehre in the middle. Landed on the kitchen floor. I picked up
-the paper pages and saw up somewhere near the top of this strip. Just like Jon,
-I too was wearing an aquamarine shirt. So I thought, "Ah, interesting. I'll have
-to see to this later."
+father's house. The newspaper had arrived and I picked it up for him, and
+brought it inside. I organized his sections for him and, yes, the comic strip
+section fell out from somewhere in the middle. Landed on the kitchen floor. I
+picked up the paper pages and saw up somewhere near the top of this strip. Just
+like Jon, I too was wearing an aquamarine shirt. So I thought, "Ah, interesting.
+I'll have to see to this later."
 
 I snipped out the little comic and held onto it. Five days later I reexamined,
 and it gripped me. I needed to find out more about this. The information I had
 was minimal, but enough. An orange cat named Garfield. Okay, that seemed to be
 the linchpin of this whole operation. Yes, another clue. A signature in the
-bottom right corner. A man's name: Jim Davis. Yes, I am on to it for sure.
+bottom right corner. A man's name, Jim Davis. Yes, I am on to it for sure.
 
-So, one: Garfield, orange cat. And two: Jim Davis, the creator of this cat. And
+So, one, Garfield, orange cat. And two, Jim Davis, the creator of this cat. And
 that curiously plain man. I did not know at the time that this name was Jon. The
 strip, you see, had no mention of this man's name, and I'd never seen it before.
 But I had these clues. Jim Davis. Garfield. And then I saw more. I spotted the
@@ -90,6 +89,48 @@ tiny copyright mark in the upper left corner. Copyright 1970 to, what is this,
 copyright belongs to a PAWS, INC.
 
 I used the local library and mail services to track down the information I was
-looking for.
+looking for. Jim Davis, a cartoonist, created a comic strip about a cat,
+Garfield. And a man, Jon Arbuckle. Well from that point on I made sure I read
+the Garfield comic strips, but as I read each one, as each day passed, the
+strips seemed to resonate with me less and less.
+
+I sent letters to PAWS, INC. Long letters. Pages upon pages, asking if Mr. Jim
+Davis could somehow publish just the one comic over and over again. It would be
+meditative, I wrote. The strength of that. Could you imagine!
+
+But, no response.
+
+The strips lost their power, and eventually I stopped reading, but, I did not
+want my perceptions diluted so I vowed to read The Pipe Strip over and over
+again. That is what I call it. The Pipe Strip.
+
+The Pipe Strip.
+
+Everything about it is perfect. I can only describe it as a miracle of creation.
+Something came together. The elements aligned. It is like the comets, the cosmic
+orchestra that, is up there over your head. The immense, enormous void is
+working all for one thing, to tell you one thing. Gas and rock and purity and,
+nothing. I will say this. When I see The Pipe Strip, and I mean every time I
+look at the lines, the colors, the shapes that make up the 3-panel comic, I see
+perfection.
+
+Do I find perfection in many things? Some things, I would say. Some things are
+perfect. And this is one of them.
+
+I can look at the little tuft of hair on Jon Arbuckle's head. It is the perfect
+shade. The purple pipe in Garfield's mouth. How could a mere mortal even make
+this?
+
+I have a theory, about Jim Davis. After copious research, and yes, of course,
+now we have the internet, and this information is all readily available, but,
+Jim Davis. He used his life experiences to influence his comic. Like I mentioned
+before, none of them seemed to have the weight of the pipe strip. But you have
+to wonder about the man who was able to even just once create the form. A
+literally flawless execution of art. Brilliance, just isn't a word.
+
+I think there is a spiritual element at work.
+
+I have seen my share of bad times, and, when you have something, well, it's
+just, emotions and neurons in your brain.
 
 [WIP]
