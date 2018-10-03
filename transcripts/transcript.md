@@ -6,7 +6,7 @@ This transcript heavily abuses commas, and mainly uses them to indicate pauses
 in Barrymore's speech pattern. To simplify the formatting, the use of colons,
 semicolons, em dashes, and parantheses is limited.
 
-================================================================================
+---
 
 07/27/1978
 
@@ -131,6 +131,97 @@ literally flawless execution of art. Brilliance, just isn't a word.
 I think there is a spiritual element at work.
 
 I have seen my share of bad times, and, when you have something, well, it's
-just, emotions and neurons in your brain.
+just, emotions and neurons in your brain, but, something tells you that it's the
+truth. Truth's radiant light. Garfield the cat?
+
+Neurons in my brain, it's, it's harmony you see. Jon and Garfield. It's truly
+harmony, like a continuous, looping, everlasting harmony. The lavender chair,
+the brown end table, the salmon colored wall, the forest green carpet, and
+Garfield is hunched, perched, perhaps with a pipe stuck firmly between his
+jowls. His tail curls around.
+
+It's more than shapes, too, because, I, okay, stay with me. I have done this
+experiment several times. You take the strip. You trace only the basic elements.
+You can do anything! You can simplify the shapes down to just blobs, just
+outlines, but it still makes sense. You can replace the blobs with magazine
+cutouts of other things. Replace Jon Arbuckle with a car parked in a driveway
+sideways. Cut that out of a magazine. Stick it in. Replace him there in the
+second panel with a, a food processor. Okay, and then we put a picture of the
+planet in the third panel over Garfield.
+
+It still works.
+
+These are universal proportions. I don't know how best to explain why it works.
+I have studied The Pipe Strip and analyzed Jon and Garfield's proportions
+against several universal mathematical constants. e, pi, the golden ratio, the
+Feigenbaum constants, and so on. And it's surprising, scary even, how things
+align.
+
+You can take just tiny pieces of The Pipe Strip, for instance, take Jon's elbow
+in the second panel. Take that and project that over Jon's entire shape in the
+second panel and you'll see a near perfect Fibonacci sequence emerge. It's eerie
+to me. It makes you wonder if you're in the presence of a deity, if there is
+some larger hand at work.
+
+There is no doubt in my mind that Jim Davis is a smart man. Jim Davis is capable
+of anything, to me. He is remarkable, but this is so far beyond that. I think we
+might see that this work of art is revered and respected in years to come. Jim
+Davis is possibly a new master of the craft, a, a genius of the eye. They very
+well may say the same things about Jim Davis in 500 years that we say about the
+great philosophical and artistic masters from centuries ago.
+
+Jim Davis is a modern-day Socrates, or da Vinci, mixing both striking visual
+beauty with classical, daring, unheard of intellect. Look, he combines these
+things to make profoundly simple expressions.
+
+This strip is his masterpiece. The Pipe Strip is his masterpiece. And it is a
+masterpiece and a marvel.
+
+I often look at Garfield's particular pose in this strip. He is poised and
+statuesque, and his cat stare is reminiscent of the fiery gazes often found in
+religous iconography. But still his eyes are playful, lying somewhere between
+the solemn father's expression in Rembrandt's "Return of the Prodigal Son," and
+the coy smirk of da Vinci's "St. John the Baptist." His ears stick up,
+signifying a peaked readiness. It's as if he could at any moment pounce. He is,
+after all, a close relative and descendent of the mighty jungle cats of Africa
+that could leap after prey.
+
+You can see the power drawn into Garfield's hindquarters, powerful haunches
+indeed.
+
+The third panel. Now I'm just saying this now. This, this is just coming to me
+now. The third panel of The Pipe Strip is essentially a microcosm for the entire
+strip itself. All the power dynamics, the struggle for superiority, right? Who
+has the pipe? Where is the pipe? All of that is drawn, built, layered into
+Garfield's iconic pose here.
+
+You can see it in the curl of his tail. Garfield's ear whiskers stick up on end.
+The smoke billows upward, drawing the eye upward, increasing scope. I'm just
+amazed, really, that after 33 years of reading and analyzing the same comic
+strip, I'm able to find new dimensions. It's a testament to the work.
+
+For six years I delved into tobacco research, because, can a cat smoke? This is
+a metaphyscial question. Yes, can any cat smoke? Do we know? Can just Garfield
+smoke? The research says no. Nicotine poisoning can kill animals, especially
+household pets. All it takes is the nicotine found in as little as a single
+cigarette. Surely Jon's pipe holds a substantial amount of tobacco, and it is
+true that pets living in the homes of smokers are nearly twenty five percent
+more likely to develop some form of cancer, most likely due to secondhand smoke.
+
+But these are facts of smoking and its tolls on our world, but after visiting
+two tobacco processing plants in Virginia, and the Philip Morris cigarette
+manufacturing facility, I came no closer to cracking the meaning.
+
+I was looking for any insight. A detective of a homicide case has to look at
+every angle. So I'm always taking apart The Pipe Strip. I have focused on every
+minutia, every detail of this strip. Jon Arbuckle's clothing. I have replicas. I
+am an expert in textiles, so you see this smoking thing was a hang-up for me.
+
+What was the statement here? Until, this is key. This is the breakthrough. The
+pipe is not a pipe, really. Obviously there is symbolism at work here. I saw
+that from the beginning, and I looked at the literal aspects of the strip to
+gain insight into the metaphors at play.
+
+I worked at a newspaper...
 
 [WIP]
