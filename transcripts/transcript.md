@@ -85,7 +85,7 @@ So, one, Garfield, orange cat. And two, Jim Davis, the creator of this cat. And
 that curiously plain man. I did not know at the time that this name was Jon. The
 strip, you see, had no mention of this man's name, and I'd never seen it before.
 But I had these clues. Jim Davis. Garfield. And then I saw more. I spotted the
-tiny copyright mark in the upper left corner. Copyright 1970 to, what is this,
+tiny copyright mark in the upper left corner. Copyright 1978 to, what is this,
 copyright belongs to a PAWS, INC.
 
 I used the local library and mail services to track down the information I was
