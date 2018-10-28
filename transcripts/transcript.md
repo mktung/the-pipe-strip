@@ -4,7 +4,8 @@ word "epistemological").
 
 This transcript heavily abuses commas, and mainly uses them to indicate pauses
 in Barrymore's speech pattern. To simplify the formatting, the use of colons,
-semicolons, em dashes, and parantheses is limited.
+semicolons, em dashes, and parantheses is limited. Incomplete sentences are
+common, as often is the case when it comes to oration.
 
 ---
 
@@ -153,7 +154,7 @@ It still works.
 
 These are universal proportions. I don't know how best to explain why it works.
 I have studied The Pipe Strip and analyzed Jon and Garfield's proportions
-against several universal mathematical constants. e, pi, the golden ratio, the
+against several universal mathematical constants: e, pi, the golden ratio, the
 Feigenbaum constants, and so on. And it's surprising, scary even, how things
 align.
 
@@ -222,6 +223,100 @@ pipe is not a pipe, really. Obviously there is symbolism at work here. I saw
 that from the beginning, and I looked at the literal aspects of the strip to
 gain insight into the metaphors at play.
 
-I worked at a newspaper...
+I worked at a newspaper printing press for eighteen months in the late 1980s. I
+was learning the literal to inform the gestural. The subliteral. The in between.
+Jon reading his newspaper means so much more than just Jon reading the
+newspaper. But how could you ever hope to decipher the puzzle without knowing
+everything there is to know about newspapers?
+
+Okay. For example, Jon holds his paper up with his left hand, thumb gripping the
+interior. I learned that this particular grip here is the newspaper grip of
+nineteenth century aristocrats, and this aristocrat grip was a point of
+contention that influenced the decision to move forward with prohibition in the
+United States in the early twentieth century.
+
+So Jon's hand position is much more than that. It is, it is a comment on class
+war and the resulting reactionary culture. But I didn't know about the
+aristocratic newspaper grip until I came across some microfiche archives at the
+printing press. It's about information. You have to take it apart.
+
+And the breakthrough on the smoking cat came late, just eight years ago,
+actually. "Smoking cat" is an industry term. It's what the smoking industry
+calls a tattle-tale teenager who tells on his friends after they've all tried
+smoking for the first time, and is actually a foreign translation, a
+bastardization of the term "smoking rat," but the phrase was confused when
+secret documents went back and forth between China and America.
+
+These documents are still secret, and the only reason I know about the term is
+because I know a man, my friend, uh, let's call him Timothy. Yeah, yes it's a
+fake name for his protection. Timothy worked for Philip Morris for sixteen
+years. He had seen the documents. When he told me, it was an "aha!" moment. And
+he said, "But how? How could this cartoonist, Jim Davis, know about this obscure
+term from the mid-seventies used exclusively by a few cigarette companies.
+
+This is still a mystery to me, but I connect the dots by noting Jim Davis'
+childhood experiences on a farm. He must have seen something. What could it be?
+
+Timothy went on to tell me that there was one particular smoking cat. A boy
+from, yes, Indiana. A boy named Ernie Barguckle, who became a thorn in the side
+of the tobacco companies for a couple years. He did more than tattle to his
+parents. He and his family took legal action, and they eventually received a
+huge settlement payout.
+
+But that name is too similar. Ernie Barguckle. Jon Arbuckle. Jim Davis must have
+used this, but there's more here. Ernie Barguckle spent nearly half of that
+settlement money on experimental medical procedures to cure his... impotence. He
+was impotent.
+
+So, he was a smoking cat with a, a, a metaphorical pipe that did not work. Are
+you starting to see the layers here? This is exciting stuff! You start to get a
+whole picture here and it informs the work. It's, it's just remarkable. Jim
+Davis took these raw ideas, these pieces, and transformed them into smart social
+commentary that is also rasvishingly beautiful.
+
+I have cried. I have cried. I have cried. I have cried, cried over this piece.
+It just gets into my soul. I've tried to explain this to people. I have the
+newspaper articles about Ernie Barguckle. People have fought me on this. They
+don't see it, or they are close-minded. How could a comic strip about a cat
+smoking a pipe mean any more than that?
+
+But it is more, and when I feel spiritual or start to think existentially, I
+still see this comic. Here is something from 1981 that I wrote in thinking about
+the implications of this strip. This is just an excerpt here. There is more
+before and after but this part is the essence to me. If a comic about a cat
+smoking a pipe can be the only thing in the universe, them maybe this is the
+strongest evidence for that.
+
+[John Blyth Barrymore pulls a white sheet of paper out from his inside left
+breast pocket, frantically unfolds it, firmly grips it, and begins reading from
+it.]
+
+Many of you say, "Oh, but I am not blind. I have never been blind," ... But when
+you truly see you will understand just how truly blind you once were to even
+think it right to say you were _not_ blind! What does as blind man see??
+
+- Blackness
+- Darkness
+- Blankness
+- Black Darkness
+- Dark Blankness
+
+--> The ABSENCE OF THINGS
+
+_Quite literally_-> _No_ thing... No things. NOTHING... Nothings. So, you see
+nothing, and I bring you into the light. _A cat has your pipe_. You've been
+blind.
+
+DO YOU UNDERSTAND THIS?
+
+\*The cat has your pipe.
+
+You can't fully immerse yourself. You don't have the light! You don't have the
+radiance, the radical light, the radically radiant life of truth, and truth's
+belonging love and nature of light and loving truthful radiance. So don't be
+bold and make bold statements. I know of you. The cat has your pipe. THE CAT.
+HAS. YOUR. PIPE.
+
+Remember that.
 
 [WIP]
