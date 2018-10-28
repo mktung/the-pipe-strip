@@ -287,9 +287,9 @@ before and after but this part is the essence to me. If a comic about a cat
 smoking a pipe can be the only thing in the universe, them maybe this is the
 strongest evidence for that.
 
-[John Blyth Barrymore pulls a white sheet of paper out from his inside left
-breast pocket, frantically unfolds it, firmly grips it, and begins reading from
-it.]
+[John Blyth Barrymore pulls a white sheet of paper out from his jacket's left
+inner breast pocket, frantically unfolds it, firmly grips it, and begins reading
+from it.]
 
 Many of you say, "Oh, but I am not blind. I have never been blind," ... But when
 you truly see you will understand just how truly blind you once were to even
@@ -314,9 +314,171 @@ DO YOU UNDERSTAND THIS?
 You can't fully immerse yourself. You don't have the light! You don't have the
 radiance, the radical light, the radically radiant life of truth, and truth's
 belonging love and nature of light and loving truthful radiance. So don't be
-bold and make bold statements. I know of you. The cat has your pipe. THE CAT.
+bold and make bold statements. I know of you. The cat has your pipe. THE. CAT.
 HAS. YOUR. PIPE.
 
 Remember that.
+
+[Barrymore briskly folds up the sheet of paper and replaces it snugly inside
+his breast pocket.]
+
+That writing, well, it's kind of rough. Kind of an early eighties feel, and I
+see that, but I'm still, I'm still proud of it.
+
+Sometimes I imagine that it is the editorial column in the newspaper Jon
+Arbuckle is reading. It's an exercise in recursion. It's like a vortex opens up.
+It's like you hold two mirrors up to each other. One is reality and the other is
+a cartoon strip.
+
+Let's see. Oh yes, I must bring this up, because I think surely Jim Davis is
+again speaking on multiple levels by including the details set before us in the
+comic. Notice the glimpse of Jon Arbuckle's foot in the first panel. The size of
+his shoe would indicate that maybe the man just has small feet, but a deeper
+investigation takes us to the foot binding rituals of certain Asian cultures.
+Inflicted usually upon women for the desire of men, this process was
+incredibly painful and crippling. Aha! Mr. Davis is here presenting us with a
+man, or rather, man who engages in foot binding. A body modification for women,
+on top of being without his pipe, or impotent. This is a man facing extreme
+inner turmoil. The panels tell that story subconsciously.
+
+Notic the background wall shading in the first panel points inward toward Jon in
+the second panel. The sharp tapered end of the purple pipe in the third frame
+also points at Jon in the second panel. Inward. The eye is drawn to the center
+panel. You can connect these points and draw a triangle across the panels, and
+this triangle will align with the reoriented points of Jon's collar. This, this
+is majestic artwork! And to uncover this hidden order is bliss like I've never
+known. Comfort in an empty world.
+
+I can't help but read the thought bubble again and again, "Now where could my
+pipe be?"
+
+"Now where could my pipe be?"
+
+It is a profound question. Why am I here? What is my purpose? It is reflection
+and self-examination here. It is facing the dust, the misery of a cold, careless
+universe. You can feel the weight of it. Now where could my pipe be?
+
+One imagines the author, Jim Davis, nearly teetering on the edge of insanity.
+His rationality, his lucidity hovering over the void, and he seeks the truth.
+You can see it in the line quality of the drawings. The thoughtful, controlled
+outlines mixed with the occasional chaotic struggles that lurk in the shadows
+and Garfield's dark stripes.
+
+It's almost as if Garfield is chaos himself. Yes, he is the embodiment of chaos,
+disorder, hatred, fear, thievery, death, destruction, desolation. These are the
+things Garfield represents. He stole the pipe! He sits with his back to Jon,
+Garfield. Garfield, this chaos cat Garfield has turned his back on everything,
+everyone!
+
+One recalls the great existential forces in literature: Camus' Meursault,
+Kafka's Gregor Samsa, or Sartre's Antoine Roquentin. Garfield the cat sees the
+hopelessness of life, which, ah ha, yes, this is why Jim Davis has chosen
+smoking. It represents a recklessness, a, a disregard for what some would define
+as the beauty of life.
+
+Garfield may die from the nicotine. He may not. He defies life and he sits
+defiant, saying nothing, but looking as if he could say, "Then let me die. It
+does not matter. It does not matter."
+
+And we are faced with this. Could Jon behave the same? Is Jon the glimmer of
+hope? He seems to be unsure. Again his question, "Now where could my pipe be?"
+indicates that he is wrestling with his own existence. The center panel centers
+the issue, and again this harkens to many of the great religious works of art.
+
+I'm talking about The Pipe Strip in relation to religion. It's, it's interesting
+to assign the roles of God and Anti-God, or as many know him to be, the Devil.
+Or on a much larger scale, simply the forces of good and evil. Garfield, the
+theif cat, evil and malicious. He is the Devil, placed to the right. And note
+the two forms of Jon. The Jon on the left, still innocent, still draped in the
+delight of the lack of knowledge. He is the humans in the Garden of Eden. He
+feels for his pipe, but he has yet to eat from the tree.
+
+And Garfield, the sinister serpent. And notice, notice how Jim Davis has framed
+this. The center Jon is locked in a struggle between his innocence and knowledge
+of the truth, knowledge of the existence of evil. It is stunning. The great
+struggle, the struggle that transcends time.
+
+Jim Davis floats over all of this as creator. A god of sorts, in his own right,
+and he presents this cautionary message to us all. It is as if he is speaking
+from high, and he is saying unto our awaiting ears, "Where will you be when the
+cat reveals himself?"
+
+I can tell you where you'll be.
+
+You will have a choice. You can face endless suffering and eternal misery. You
+can forced and beaten down with barbarians that claw at each other just for a
+view of salvation. They'll tear your eyeballs out and rip your gizzards from end
+to end. They worship this cat, this false idol, this evil, horrible cat. Do not
+be seduced by the cat and the pipe!
+
+Garfield, thy name is a mark of the demons of hell. Something like this, and to
+those listening it is a stark reminder to follow the path of the first panel
+Jon.
+
+1. Be humble.
+2. Be grateful.
+3. Honor the law,
+4. And honor thyself.
+5. Be true, and
+6. Be good, and no harm will come to you.
+7. Pray for salvation, and it will be granted unto you.
+8. Be like Jon Arbuckle as he lowers his head.
+9. Be like Jon Arbuckle as he lowers his paper,
+10. As he turns his head.
+11. Bow with Jon Arbuckle,
+12. And praise unto the creator, Jim Davis,
+13. And banish demon Garfield from your life.
+
+So what is all this? What am I saying? Aha! What does all this mean? Why is this
+one comic strip so important to me, and why do I feel the need to share this?
+
+Obligation.
+
+I have an obligation to you all. This is redemption. This is a belief in
+redemption. The sacrifice of all the obvious trappings of this false modern
+life.
+
+Look at the simplicity in this strip, in The Pipe Strip. Look at the simple
+clothes Jon wears. Look at his simple, basic furniture. No adornments on the
+wall. Even the very pipe his cat, Garfield, stole. It is a plain, modest pipe.
+
+And I have adapted this way of life. It speaks to me. In our times, well, you
+don't need me to point out the hyperbole of our times. You have children being
+born eight or nine at a time. You have more money spent on a single Hollywood
+movie than some nations can spend feeding their starving people.
+
+Torture.
+
+Distrust.
+
+Look around you. It's overwhelming. What can you contribute?
+
+And every day I look in the mirror, and I hold this comic up to the mirror, and
+I look into the mirror and at this little comic strip.
+
+Be humble.
+
+Be thankful.
+
+It is a reminder.
+
+Be respectful.
+
+You are a statue.
+
+You are fragile.
+
+When you break, when you shatter, where will those pieces go? Ask, ask, ask, ask
+this question. Will you ask? Humankind is only as great as you. You, the
+individual. It begins and ends with you. You must treat this expedition, this
+search, this life with a reverence and intensity found only in smallest sticks,
+the littlest leaf, the tiniest stone, the most miniscule grain of sand on beach
+of billions.
+
+This is the secret. Do you want the pipe? Do you "knowant" [*sic*] to know where
+the pipe has gone? You ask yourself. You ask. You ask. You ask. Now where could
+my pipe be?
+
+When I was a young man...
 
 [WIP]
