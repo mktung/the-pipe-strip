@@ -293,7 +293,7 @@ it.]
 
 Many of you say, "Oh, but I am not blind. I have never been blind," ... But when
 you truly see you will understand just how truly blind you once were to even
-think it right to say you were _not_ blind! What does as blind man see??
+think it right to say you were __not__ blind! What does as blind man see??
 
 - Blackness
 - Darkness
@@ -303,8 +303,8 @@ think it right to say you were _not_ blind! What does as blind man see??
 
 --> The ABSENCE OF THINGS
 
-_Quite literally_-> _No_ thing... No things. NOTHING... Nothings. So, you see
-nothing, and I bring you into the light. _A cat has your pipe_. You've been
+__Quite literally__-> __No__ thing... No things. NOTHING... Nothings. So, you see
+nothing, and I bring you into the light. __A cat has your pipe__. You've been
 blind.
 
 DO YOU UNDERSTAND THIS?
