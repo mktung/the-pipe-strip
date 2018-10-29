@@ -1,7 +1,3 @@
-This is a transcript of the Pipe Strip Analysis Video (PSAV) as it "should" be.
-Many imperfections in Barrymore's speech are ignored (e.g. stuttering over the
-word "epistemological").
-
 This transcript heavily abuses commas, and mainly uses them to indicate pauses
 in Barrymore's speech pattern. To simplify the formatting, the use of colons,
 semicolons, em dashes, and parantheses is limited. Incomplete sentences are
@@ -21,10 +17,10 @@ Philip Glass
 Kundun: The Motion Picture Soundtrack
 
 [1:19](https://youtu.be/NAh9oLs67Cw?t=1m19s)
-When I was 18, 18 years old, I saw for the first time in my life, I saw a vision
-of clarity. I saw a comic strip, a 3-panel comic strip, that, though simple as
-it seemed, changed me. Changed my being. Changed who I am. Made me who I am.
-Enlightened me.
+When I was eighteen, eighteen years old, I saw for the first time in my life, I
+saw a vision of clarity. I saw a comic strip, a three-panel comic strip, that,
+though simple as it seemed, changed me. Changed my being. Changed who I am. Made
+me who I am.  Enlightened me.
 
 [1:45](https://youtu.be/NAh9oLs67Cw?t=1m45s)
 The strip, Garfield. The comic strip was new, no more than maybe a month and a
@@ -45,13 +41,13 @@ hmmm, it, it is about everything. This little comic is, oh, lo' and behold not
 so little anymore.
 
 [2:50](https://youtu.be/NAh9oLs67Cw?t=2m50s)
-So yes, when I was 18, I saw this comic. And it hit me all at once, it's, it's
-power. I clipped it and every day I looked at it and I said, "Okay, let me look
-at this here. What is this doing to me. Why is this so powerful?" Jon Arbuckle,
-he sits here, legs crossed, comfortable in his home, and he reads his newspaper.
-The news of the world, perhaps. And then he extends his fingers, lightly,
-delicately, he taps his fingers on an end table and he feels for something. What
-is it? It is something he needs, but it is not there.
+So yes, when I was eighteen, I saw this comic. And it hit me all at once, it's,
+it's power. I clipped it and every day I looked at it and I said, "Okay, let me
+look at this here. What is this doing to me. Why is this so powerful?" Jon
+Arbuckle, he sits here, legs crossed, comfortable in his home, and he reads his
+newspaper.  The news of the world, perhaps. And then he extends his fingers,
+lightly, delicately, he taps his fingers on an end table and he feels for
+something. What is it? It is something he needs, but it is not there.
 
 [2:32](https://youtu.be/NAh9oLs67Cw?t=2m32s)
 Then he looks up, slightly cockeyed, and he thinks. His newspaper in his lap
@@ -112,8 +108,8 @@ Something came together. The elements aligned. It is like the comets, the cosmic
 orchestra that, is up there over your head. The immense, enormous void is
 working all for one thing, to tell you one thing. Gas and rock and purity and,
 nothing. I will say this. When I see The Pipe Strip, and I mean every time I
-look at the lines, the colors, the shapes that make up the 3-panel comic, I see
-perfection.
+look at the lines, the colors, the shapes that make up the three-panel comic, I
+see perfection.
 
 Do I find perfection in many things? Some things, I would say. Some things are
 perfect. And this is one of them.
@@ -168,8 +164,8 @@ There is no doubt in my mind that Jim Davis is a smart man. Jim Davis is capable
 of anything, to me. He is remarkable, but this is so far beyond that. I think we
 might see that this work of art is revered and respected in years to come. Jim
 Davis is possibly a new master of the craft, a, a genius of the eye. They very
-well may say the same things about Jim Davis in 500 years that we say about the
-great philosophical and artistic masters from centuries ago.
+well may say the same things about Jim Davis in five hundred years that we say
+about the great philosophical and artistic masters from centuries ago.
 
 Jim Davis is a modern-day Socrates, or da Vinci, mixing both striking visual
 beauty with classical, daring, unheard of intellect. Look, he combines these
@@ -198,8 +194,8 @@ Garfield's iconic pose here.
 
 You can see it in the curl of his tail. Garfield's ear whiskers stick up on end.
 The smoke billows upward, drawing the eye upward, increasing scope. I'm just
-amazed, really, that after 33 years of reading and analyzing the same comic
-strip, I'm able to find new dimensions. It's a testament to the work.
+amazed, really, that after thirty-three years of reading and analyzing the same
+comic strip, I'm able to find new dimensions. It's a testament to the work.
 
 For six years I delved into tobacco research, because, can a cat smoke? This is
 a metaphyscial question. Yes, can any cat smoke? Do we know? Can just Garfield
@@ -479,6 +475,89 @@ This is the secret. Do you want the pipe? Do you "knowant" [*sic*] to know where
 the pipe has gone? You ask yourself. You ask. You ask. You ask. Now where could
 my pipe be?
 
-When I was a young man...
+When I was a young man, remember now I first saw this comic when I was eighteen
+years old. Ages ago, when I was youthful, vibrant. For weeks I denied that a
+comic strip was having such a profound effect on me. I was much like Jon
+Arbuckle in this middle panel. He says, "Now where could my pipe be?"
+
+You can look into his eyes, his half-lowered eyes and think to yourself, "Now
+surely Jon, surely you cannot be this naive. This is nothing new for you." And
+if you've read more of the Garfield comic strips by Jim Davis you'd understand
+what I am saying now. Garfield the cat does things like this all the time. He
+will take things from Jon: food, items, anything. This is his very nature.
+
+So you see this, and you want to say, "Jon Arbuckle, come now. You are lying to
+yourself. You are lying to yourself and to all of us if you pretend to have not
+have any idea where your pipe has gone. Perhaps you think you've left it
+somewhere else, but, hmph, you're not so forgetful. You are lying to yourself.
+Ahh yes, you are lying to yourself Jon Arbuckle. You know that Garfield has the
+pipe. Somewhere deep down you know this. You don't even need to think the
+question."
+
+And that was me when I saw this strip. One week passed, and each morning I'd
+open my drawer and slam it shut again. I would go to look at the comic, but I'd
+pause and think, "Oh no, I, I don't need this comic. I don't need, I don't need
+to look at it," but there I was lying to myself. I did need to see it. And so I
+did.
+
+It's cathartic.
+
+You give in, and that is transition from the second panel of life to the third
+panel of life. It is a simple story structure. The passage from the second act
+to the third. The twilight of things. Jon gives into his suspicions. He knows
+the truth. He's always known the truth. He yells out, "Garfield! Garfield!
+GARFIELD!" It is like pressure from a steam valve being released. The buildup is
+unbearable and then, "PSSSHHHH!" It's gone.
+
+So it is like this. When I speak about the truth, the truth, the light, the
+radiance. This, this is the kind of thing I'm talking about. This is the essence
+of this brilliant work of art. The practical mixing, meeting, agreeing with the
+spiritual, it is all here.
+
+But spirituality is not an easy thing to confront. You might find yourself able
+to wrap your mind around a simple math problem or a basic newspaper article, or,
+but intellect is much less subjective.
+
+What is sprituality, and how have I found spiritual peace and serenity in
+Garfield?
+
+A long time ago, after I encountered The Pipe Strip, I spent some time, as I
+mentioned before, soul-searching. When something impacts you or alters your very
+perception so greatly, there is a long period of confusion and recovery time.
+It's as if you don't know who you are, and that can be a very scary prospect,
+especially if you thought you had a good grasp on that sort of thing.
+
+Imagine if Jim Davis did not know who he was. Would he be capable of shaping the
+cultural landscape as he's done? No, no, of course he wouldn't. And how about
+his characters? Jon. What if Jim Davis suddenly woke up and didn't know who Jon
+was? What if he couldn't make the informed decisions to accurately depict
+Garfield's personality? Because and [*sic*] he could no longer specify or
+demarcate the boundaries of Garfield's behavior. What kind of comic would that
+be? You see? So draw the parallel.
+
+I saw this comic, and yes, I was disoriented, and if I didn't reconcile this
+issue with myself, what kind of person would I be? Undoubtedly dire
+circumstances, but remember, this was not a math problem. This was not an
+article. This was not something I could just figure out, and as skeptical as I
+was, I realized that faith and spirituality were avenues that required
+exploring.
+
+At first I tried long nights reading Garfield by candlelight, or aromatic
+meditation sittings while thinking of Garfield, but nothing snapped. Nothing
+clicked. I still felt lost.
+
+But I kept it up. I hired a shaman and a young personal Yogi Sikh Guru, Avrahm
+Dahv Singh Sahib. I pushed and pushed, determined to find myself.
+
+And then a miracle happened.
+
+Upon retrieving my morning paper to clip the Garfield comic, I noticed a young
+girl selling lemonade two houses down. She sat occupied at her stand. She had no
+customers in sight, so I approached, and saw that she was coloring. I looked at
+her drawing: three rectangular boxes, a man in a blue shirt, an orange cat. I
+knew what this was. Even in her crude scribbles, I knew exactly what this was.
+She was drawing a Garfield comic.
+
+I looked at her words, and saw that in her strip...
 
 [WIP]
