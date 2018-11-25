@@ -558,6 +558,47 @@ her drawing: three rectangular boxes, a man in a blue shirt, an orange cat. I
 knew what this was. Even in her crude scribbles, I knew exactly what this was.
 She was drawing a Garfield comic.
 
-I looked at her words, and saw that in her strip...
+I looked at her words, and saw that in her strip, Jon asked Garfield to retrieve
+a newspaper. Hah, funny, since I've done just that but for myself. Garfield is
+sarcastic, but agrees to it. He returns and calls Jon, "Sahib."
+
+Jon exclaims that the paper is all chewed up, but then Garfield says, and I
+quote, "Sahib asks fish, paper is wet. Sahib asks cat, paper is holey."
+
+I remember the words and ran back to my house. I thought, "How odd that Sahib
+shows up in the strip, and my spiritual advisor's name is Avrahm Dahv Singh
+Sahib." Coincidence, surely, but nonetheless I spent the next sixteen hours
+pouring through my clipped Garfield comics looking for the strip this young
+girl had been coloring. I couldn't find it!
+
+Then I eventually fell asleep right on my kitchen table. Next morning I
+retrieved my paper again and I clipped the Garfield comic. The date was July 12,
+1983. And there it was, The Sahib Strip in all its glory.
+
+The girl had been drawing the next day's strip!
+
+Well, I ran right out of my house. I, I ran back to where she was, but she was
+gone, and in place of a lemonade stand was a "For Sale" sign. They'd moved out.
+I rushed back to my house to call Avrahm, but, I was informed that he'd moved
+away as well.
+
+I reeled for several hours, then it all connected for me. It was meant to be.
+It, it was meant to be this way. Jim Davis, Jon, Garfield. It was always meant
+to be this way for me. They moved at the forefront and everything else fades
+away. Everything else. The girl, the lemonade stand, Avrahm Dahv Sing Sahib, it
+all existed to show me the way, and when I'd found the way, everything else
+melted away.
+
+It was a beautiful miracle.
+
+And if **July 27, 1978**, the day I first saw The Pipe Strip, was the first day
+of my life, then that day **July 12, 1983** was the second day of my life.
+
+I've never looked back. Garfield has transformed me, and I am a man born anew
+because of Garfield.
+
+When I was in my mid-thirties...
+
+39:57
 
 [WIP]
