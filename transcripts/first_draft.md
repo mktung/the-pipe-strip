@@ -896,6 +896,6 @@ There will always be Garfield, and there will always be its creator, Jim Davis.
 -Oscar Wilde
 
 
-##### LASAGNA CAT
+### LASAGNA CAT
 
-##### FATALFARM
+### FATALFARM
