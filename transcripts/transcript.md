@@ -1,20 +1,19 @@
-This transcript heavily abuses commas, and mainly uses them to indicate pauses
-in Barrymore's speech pattern. To simplify the formatting, the use of colons,
-semicolons, em dashes, and parantheses is limited. Incomplete sentences are
-common, as often is the case when it comes to oration.
-
----
-
-07/27/1978
-
 Jim Davis tribute set to the entire original motion picture score of "Kundun" by
 Philip Glass featuring the philosophical musings of John Blyth Barrymore.
 
-Lasagna Cat
-Tributes to Jim Davis
+# 07/27/1978
 
-Philip Glass
-Kundun: The Motion Picture Soundtrack
+"Now where could my pipe be?"
+
+"GARFIELD!!"
+
+### Lasagna Cat
+
+#### Tributes to Jim Davis
+
+##### Philip Glass
+
+##### Kundun: The Motion Picture Soundtrack
 
 [1:19](https://youtu.be/NAh9oLs67Cw?t=1m19s)
 When I was eighteen, eighteen years old, I saw for the first time in my life, I
@@ -597,8 +596,306 @@ of my life, then that day **July 12, 1983** was the second day of my life.
 I've never looked back. Garfield has transformed me, and I am a man born anew
 because of Garfield.
 
-When I was in my mid-thirties...
+When I was in my mid-thirties, I was interviewed for a documentary. It was a
+documentary on the subject of cat behavior. Now, I have had cats my whole life.
+I have three cats now, and at the time of this documentary interview I had four
+cats. I sat down for the interview and was joined by a veterinarian who
+specialized in felines. Doctor Caroline Wilnets was her name, I believe. And the
+doctor discussed color blindness in animals and how it affects their behavior.
+She specifically brought up the fact that cats are red-green colorblind. They
+can see colors, but they can't tell the difference between red and green.
 
-39:57
+And look at the color choice in this strip here. Garfield sits on a green floor
+behind a pinkish red wall. I heard this and I immediately pulled a copy of the
+comic from my wallet to show to the doctor. I moved so fast, I'm sure I nearly
+scared her. I pointed at the paper and said, "L-Like this! Like this! Look, at
+this here! This cat, Garfield, he's colorblind! He must be! That must be the
+answer here. Like this."
 
-[WIP]
+As overexcited as I was, I- I managed to take in her response. She said, "Yes, a
+cat in this room would have a hard time differentiating the wall from the
+floor. Add to that cats known spacial confusion and you have the makings of a
+CAT RAGE ROOM." Now, she informed me that this isn't exactly common knowledge
+among cat owners, but a seasoned cat owner, someone particularly perceptive will
+have picked up on it. So what's incredible here is not only is Garfield's
+behavior symbolic of the Devil and all the evil constructs in the world, but-
+but- but- but also! It is rooted in science and scientific fact.
+
+Look at that. You cannot spell FACT without CAT. Aha! Just a little joke. Just
+some wordplay, but getting back on track. And you can't spell TRACK without CAT.
+Okay, I digress. I gotcha, I got you. Enough kidding around.
+
+It is established here that Garfield is in a rage. An ultimate rage of fury and
+hatred caused by colorblindness.
+
+We know the "what." We know the "why." But let us examine the "how." The "how"
+of his rage is particularly interesting here. We've looked at his posture and
+called it powerful, in control, statuesque, *et cetera*, *et cetera*. Composed
+rage. It's peculiar, and I've taked to a number of psychologists and
+psychiatrists, and even a couple anger management therapists about this concept.
+Could we see the same kind of behavior in a human? Is Garfield representative of
+something more specific than just chaos and rage?
+
+Deciphering this is going to take some perseverance, for sure. The psychologists
+pointed to a phenomenon in humans, and yes I believe one of the anger management
+counselors brought it up as well. The idea the people oftentimes will bottle
+their rage.
+
+Garfield the cat here, well, he could be bottling his anger inside, shoving it
+deep into his cat gut to ignore and deal with at a later time. Ehhh, well no,
+that's not exactly right. Garfield has already acted out. He's already stolen
+the pipe. He's smoking the pipe. He's already dealt with his anger. He's already
+lashed out, so psychologically, what is going on here? What is this cat doing
+and how does it impact his owner, Jon Arbuckle, psychologically?
+
+Well Garfield is angry. He is acting on his anger, but is this passive anger or
+aggressive anger? Passive. It is passive because if Garfield has a problem with
+Jon specifically, he's choosing a passive way of dealing with that problem. He
+has not confronted Jon and said, "Jon I have a problem with the way you've
+decorated this room. As a cat, I am colorblind, and this sends me into a rage.
+You've created a RAGE ROOM for me here and I don't like it. I want you to change
+it."
+
+Instead of that confrontational approach, though, Garfield has chosen to steal
+Jon's pipe. And that in turn angers Jon, but Jon decides to be aggressively
+angry and yell at Garfield. So now instead of a calm conversation between two
+respectful parties, you have two heated, angry individuals, each with a problem
+and no direct line to solving it. The layered emotions here tell a story with
+tight, focused brevity that would make Hemmingway weep. This is an entire drama
+in just three panels, people.
+
+But let's not be remiss and miss the humor of this situation. The absurdity of
+it all. For certainly there is a reason the visual shorthand for drama includes
+both a crying mask and a laughing mask. Comedy and tragedy complement each other
+and meld together to create drama, tension, the height of humanity, the peak of
+art that reflects back to us our own condition. And here, in its basis form, we
+can laugh at this comic. Yes, comic! In which a cat smokes a pipe. Heh! When is
+the last time you have seen such a thing in your life? Never, I presume. I
+certainly never have.
+
+The Greek Muse Thalia's presence is strong in this work of art here. Comedy, it
+is comedy! And if you look at the structure again, you'll see this perfect form
+of thirds works magically for the tranmission of yes, yes, a joke! A joke is as
+old as time. Even cavemen told jokes, and the joke here is that Jon has lost his
+pipe, or he thinks he has. But lo and behold, it is the cat Garfield who has the
+pipe. Surprise, surprise! The cat is smoking! Again, the transition from setup
+to punchline takes place between the second and third panels.
+
+But make no mistake, the comic is more than just a comic. Yes it is funny. Of
+course it is. It is operating at the height of sophisticated humor on par with
+any of Shakespeare's piercing wit. On the one hand, Garfield the comic, with
+Jon the man. Humor is art. The other hand, Garfield comic with Jon the man
+stirring, no, riveting. Drama, as with everything, it is tension and release.
+Tension and release.
+
+A cycle.
+
+I keep returning to this idea because it is, it is so omnipresent. Yes, you
+could, and yes, I have done this on more than one occasion. You could print this
+comic strip on a giant piece of paper. The dimensions would be something like 34
+inches by 11 inches. Now tape the ends together with the comic facing inward.
+Stick your head in the middle of this Garfield comic loop and read. Start at the
+first panel. Jon is reading the newspaper. He feels for something on the end
+table. Second panel. He sets the newspaper down. Something is not right. "Now
+where could my pipe be?" he thinks. And then the payoff. The third panel.
+Garfield has Jon's pipe and is smoking it.
+
+But aha-ha! The paper is in a loop around your head. So that you can see that
+once again Jon is in his seat reading the paper. And so on, and so on. You could
+literally read the comic strip for eternity. I spent many a relaxing Sunday
+afternoon reading this strip over and over.
+
+I'm reminded of the Portugese death carvings which always begin and end with the
+same scrawled image. So this idea of repitition, and the beginning being the
+end, and the end being the beginning, it's not new. It is an ageless tradition
+among the best storytellers humanity has ever offered. And I'm not wrong to
+include cartoonist Jim Davis in that exulted set for this particular strip
+alone.
+
+I'm not foolish enough to deny that great art is subjective, divisive even, and
+that some people see this Garfield comic and shrug with no real reaction, but I
+will say that I believe everyone in the world should see it. At the very least,
+see it. You should all see it. Read it. Spend some time with it. Spend an hour
+reading it. What's an hour? Yes you could watch some television program. You
+could play some fast-paced video games or computer games, yes you could do all
+those things, but it's just an hour.
+
+And if you give this strip a chance, if you look into Jon Arbuckle's eyes, if
+you look into Jon Arbuckle's soul, you might find that you'll really be looking
+into your own soul. It's self discovery. That is what I'm talking about here.
+You have the opportunity, the possibility. It could change you. Don't be afraid.
+
+You know, just last week I was eating lunch near the municipal court, like I do
+every Thursday, and there was a plumbing man. A plumbing van parked out in
+front, a, and a man, a, a plumber would step out from the court and retrieve
+something from his van every so often. A few times this happened. I thought
+nothing of it. Just a plumber doing some work at the municipal court. But then
+he came out and looked through his van, and it was clear. He couldn't find
+something. I noticed and thought, "Well, that's sort of similar to the Garfield
+comic in a way." Someone looks for something, can't find it.
+
+But yes, that probably happens billions of times a day around the world. But
+then this plumber put his hands on his hips. Then he scratched his head, and he
+said aloud, "Now where could my pipe wrench be?" *Gasp*. Well at this I leaped
+off the bench, sandwich still in hand, and I rushed over. I shouted, "What was
+that you said?"
+
+He looked at me and said, "What? I can't find my pipe wrench."
+
+And I said, "No. No, no. Say it, like, how you just said it."
+
+He scratched his head and repeated, "Now where could my pipe wrench be?"
+
+I slapped him on the back and said, "Garfield!" He looked so confused, so I
+said it again. Then I said, "Your orange cat took it." Heh, he-heh, I laughed
+and laughed. And he smiled and went back into the court room.
+
+I walked away, knowing that the plumber and I, two complete strangers, bonded
+over this Garfield comic. You see, life imitates art and becomes a common
+ground. I have a feeling that if I see this plumber again, we'll be sharing
+stories like two old friends, because we've been united by art. We have a common
+love for Jim Davis and his characters, his writings. The humor, the drama, the,
+that rascal Garfield the cat.
+
+Oh, and by the way, if you're wondering what I was having for lunch that day, it
+was a ham sandwich with an apple and potato chips in a bag. I had a soda as
+well.
+
+I think it's important to view The Pipe Strip in philosophical terms. We've
+touched briefly on the notion of existentialism. That theme is very prevalent in
+this strip. Garfield is, in fact, a modern existential antihero. But if Garfield
+embodies the bewilderment of a meaningless life, what is Jon? What are the
+telltale signs that informs Jon's philosophical standpoint, his approach, what
+style of thinking he represents?
+
+Jon is depicted as being grounded in the material world, a world of things. He
+is surrounded by objects, and he touches these objects. He interacts with them.
+The newspaper, the end table, the chair, his clothes, all these physical things
+make up Jon's world. In some sense, even his cat Garfield is an object to him, a
+thing.
+
+The first ideology that comes to mind when thinking of objects in the tangible
+world is pragmatism. Is Jon Arbuckle a pragmatist? His beliefs stem from a
+useful, coherent view of his environment. A sort of cause and effect
+understanding of his world that helps him A, deduce that his pipe is missing,
+and B, catch his cat Garfield using the pipe. This kind of empirical and logical
+thinking lends credence to the idea that Jon is indeed a pragmatist, although it
+is hard to entirely ignore the rest of the Garfield comic canon.
+
+While Garfield is consistently anarchic, and embraces the chaos and absurdidty
+of life, Jon Arbuckle exhibits an erratic, unpredictable mix of philosophical
+behaviors. At times he is borderline delusional. An idealist. An almost
+slap-happy version of Don Quixote. Other moments, he is rigid, nearly to the
+point of being obsessive, somewhat like a structuralist. And certainly has
+streaks of sarcasm and negativity that might classify him as a skeptic.
+
+But isn't there some universal truth in this approach? How can any one man, how
+can Jon Arbuckle be just one thing? How can any of us be just one thing? We're
+an amalgamation of ideas and emotions, conducts and functions, thoughts and
+feelings. Jon Arbuckle may very well inhabit tenets of nearly every major
+philosophical tract known to man.
+
+We all might.
+
+Characters are reduced to make them recognizable. Definable. A story needs a
+good guy. A story needs a bad guy. But rarely is one person defined in such
+black and white terms. Even Garfield, with all his bad behavior, Machiavellian
+motivation, and general ne'er-do-well attitude, can be kind and thoughtful. You
+just have to find that rare strip.
+
+Speaking philosophically about the entire Garfield franchise, it's an incredibly
+accurate depiction of life. Its bold lines and bright colors are merely a
+facade, a, a red herring, a lie. This cartoon is not a cartoon at all. It is not
+caricature. It is not caricature despite adopting caricature as its visual
+style and tone.
+
+But I don't really like to speak in broad, sweeping generalizations about
+Garfield.
+
+The comic has been running for over thirty years. To try and boil that all down
+is just, well, it's impossible. I think the only way, and any historian worth
+his salt will agree with me, is to look at individual moments, isolated
+instances, single comic strips. Can I discuss this one strip in the context of
+the entire run of Garfield? Yes, I'd do that, just as a film historian might
+analyze one movie in relation to the history of all movies, or a war enthusiast
+might look at a single battle's impact on an entire war.
+
+The Pipe Strip is just an instance in the lives of Jon and Garfield. Perhaps Jon
+is not a pragmatist at all. Let's look at this again. Maybe Jon is exhibiting
+the traits of a rationalist thinker. His question, "Now where could my pipe be?"
+is a clue that his though process stems from the early rationalist questions
+posed by René Descartes. The well-known quote, "I think, therefore I am,"
+attributed to Descartes is applicable.
+
+Another close look at the strip and we see that Jim Davis chose to draw Jon
+thinking his question, "Now where could my pipe be?" Jon does not speak this
+question aloud, so Jim Davis is also exploring the mind-body duality. Jon's
+quesion operates on the level of a literal question, but it also examines the
+nature of our reality. Jim Davis' epistemological approach tells us something
+about the human condition. Jon's thoughts remain the focal point of this strip.
+
+The comic is quite literally centered around his though, "Now where could my
+pipe be?" This is reality. This is where cognition, and the power and function
+of the mind take over. As Plato believe, the body is just a shell for Jon
+Arbuckle. Yes, he can use his physical body to read his paper, or cross his
+legs, but these inputs of touch, sight, hearing, *et cetera*, these senses are
+the triggers of the mind, as we see here, the mind is something greater. It is
+the originator of ideas, and ideas are forever, immortal.
+
+Immortality through thought, a, a major theme in literature and philosophy. And
+isn't that what Mr. Jim Davis, himself, has achieved? Will he live forever?
+
+The universe will continue to spread and spread outward, and entropy will turn
+chaotic infinity into a homogenous controlled system. This will take billions of
+years, and in that time humans will push technology to heights we can't imagine.
+We'll explore and inhabit space, and occupy more and more of the universe, just
+as time allowed our ancestors to multiply in numbers and populate more and more
+of the Earth.
+
+And as the specific people come and go, their physical bodies will be born, and
+grow, and die, but their thoughts will remain. And Jim Davis' comics, his
+glorious Garfield comics are recorded ideas of his that will still be here.
+
+Even when the Earth is no longer inhabitable, and humanity has long since moved
+away to bigger planets, they'll carry with them a record, a record we all keep.
+Mark my words. And look at what we've started, What is, what is the internet?
+What is the online world, if not a record, never-ending feed of ideas,
+immortal ideas, forever placed in the aether of dualism.
+
+What is an idea? Where does it live? How does it manifest itself? Can it live
+forever? Will it live forever outside of these physical husks of ours, our
+bodies?
+
+Jon Arbuckle and Garfield started merely as thoughts, but they've become so much
+more. That old cliché rings true. They've taken on a life of their own.
+
+And life may not be what we think.
+
+Life brings to mind a beating heart, breathing lungs, blinking eyes, but the
+real life is in our imaginations. And who better embodies the definition of
+imagination if not a simple man? A cartoonist, who puts his ideas to paper so
+that they may live on, that our childrn, and our children's children, and their
+children's children's children can access the wealth of ideas that have
+accumulated thus far.
+
+They will plug themselves into an information grid and they will have access.
+They will read every Garfield comic. 80,000 years from now a child will see
+simple Jon Arbuckle reading a newspaper. He will feel around for something, but
+that something is not there. He will lift his head and think, "Now where could
+my pipe be?" and Garfield will be smoking the pipe. And Jon will yell,
+"Garfield!" and what then? 80,000 years from now? The child reading this comic
+will smile, and that smile will transcend space, and time, and the physical
+limitations of this existence, whatever it may be, however many dimensions
+exist.
+
+There will always be Garfield, and there will always be its creator, Jim Davis.
+
+
+> IT IS THROUGH ART, AND THROUGH ART ONLY, THAT WE CAN REALIZE OUR PERFECTION.
+
+-Oscar Wilde
+
+
+###### LASAGNA CAT
+
+###### FATALFARM
