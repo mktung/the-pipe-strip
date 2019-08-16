@@ -7,13 +7,13 @@ Philip Glass featuring the philosophical musings of John Blyth Barrymore.
 
 "GARFIELD!!"
 
-### Lasagna Cat
+## Lasagna Cat
 
-#### Tributes to Jim Davis
+### Tributes to Jim Davis
 
-##### Philip Glass
+#### Philip Glass
 
-##### Kundun: The Motion Picture Soundtrack
+#### Kundun: The Motion Picture Soundtrack
 
 [1:19](https://youtu.be/NAh9oLs67Cw?t=1m19s)
 When I was eighteen, eighteen years old, I saw for the first time in my life, I
@@ -876,9 +876,9 @@ real life is in our imaginations. And who better embodies the definition of
 imagination if not a simple man? A cartoonist, who puts his ideas to paper so
 that they may live on, that our childrn, and our children's children, and their
 children's children's children can access the wealth of ideas that have
-accumulated thus far.
+accumulated thus far. They will plug themselves into an information grid and
+they will have access.
 
-They will plug themselves into an information grid and they will have access.
 They will read every Garfield comic. 80,000 years from now a child will see
 simple Jon Arbuckle reading a newspaper. He will feel around for something, but
 that something is not there. He will lift his head and think, "Now where could
@@ -896,6 +896,6 @@ There will always be Garfield, and there will always be its creator, Jim Davis.
 -Oscar Wilde
 
 
-###### LASAGNA CAT
+##### LASAGNA CAT
 
-###### FATALFARM
+##### FATALFARM
